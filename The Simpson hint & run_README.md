@@ -1,2 +1,0 @@
-# Atom.Galante.cz
-AntySatyRasista 🖤
